@@ -1,1 +1,3 @@
-https://bocdn.ecotree.green/blog/0001/01/ad46dbb447cd0e9a6aeecd64cc2bd332b0cbcb79.jpeg
+https://www.collinsdictionary.com/images/thumb/apple_158989157_250.jpg
+
+https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Motorboat_at_Kankaria_lake.JPG/220px-Motorboat_at_Kankaria_lake.JPG
